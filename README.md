@@ -30,6 +30,7 @@ I'm especially interested in teaming up on:
 Feel free to connect or collaborate:   
 📧 **mdmgeeks@outlook.com**   
 📧 **cmaddela@outlook.com**   
+📧 **it-kabal@outlook.com**
  
 --- 
  
